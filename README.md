@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...software development
 - 💞️ I’m looking to collaborate on ...film production
 - 📫 How to reach me ...herbynjoroge@gmail.co
-- 😄 Pronouns: ...his/hers
+- 😄 Pronouns: ...nigga
 - ⚡ Fun fact: ...I love Mercedes
 
 <!---
